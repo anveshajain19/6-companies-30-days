@@ -1,5 +1,5 @@
 # 6-companies-30-days
-A Challenge to make sure you start with your goals today , don’t procrastinate and don’t let your college decide your future!
+Setting the tone right for 2023 ❤️
 "#revisewithharshchallenge"
 
 Link : https://youtu.be/QUnaBYKQkZU
